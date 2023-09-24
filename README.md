@@ -41,10 +41,10 @@
 
 ## 2.2 Considerações Finais
 
-Em meus trabalhos desenvolvidos, sempre busco manter uma relação mútua de cumplicidade com o meu cliente para que ele possa se sentir à vontade, para assim poder passar suas dores, para que eu possa entender melhor o seu negócio, a sua necessidade, para assim entregar em meus trabalhos, um conteúdo de valor.
+Em meus trabalhos, sempre busco estabelecer uma relação mútua de cumplicidade com o meu cliente, para que ele possa sentir-se à vontade, assim passando naturalmente, suas dores, suas dificuldades, seus problemas do dia a dia do seu negócio, para que desta maneira, eu possa entender melhor a respeito da sua empresa, e consequentemente, possa entregar um conteúdo que agregue-o mais valor, independentemente, se trata, de um pequeno, médio ou grande negócio.
 
-Para que assim, agregue ao seu negócio, entregas de valor, sempre buscando ajudar o máximo possível cada cliente que ÚNICO, independente se é um negócio voltado para um público local, da microrregião, ou seja ele um grande empresário.
+"O reflexo de um bom atendimento é o carinho de um cliente satisfeito."
+Óticas Carol Vila Isabel
 
-
-
+Retirado desse site https://www.pensador.com/atendimento_ao_cliente/ em 24/09/2023.
 
