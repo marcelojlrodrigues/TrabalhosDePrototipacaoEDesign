@@ -41,10 +41,11 @@
 
 ## 2.2 Considerações Finais
 
-Em meus trabalhos, sempre busco estabelecer uma relação mútua de cumplicidade com o meu cliente, para que ele possa sentir-se à vontade, assim passando naturalmente, suas dores, suas dificuldades, seus problemas do dia a dia do seu negócio, para que desta maneira, eu possa entender melhor a respeito da sua empresa, e consequentemente, possa entregar um conteúdo que agregue-o mais valor, independentemente, se trata, de um pequeno, médio ou grande negócio.
+Em meus trabalhos, sempre busco estabelecer uma relação mútua de cumplicidade com o o cliente, para que ele possa sentir-se à vontade, assim passando naturalmente suas dores, suas dificuldades, seus problemas do dia a dia da sua empresa. Para que desta maneira, eu possa entender melhor a respeito do seu negócio, para que consequentemente possa entregar um conteúdo que agregue à ele mais valor. Assim consigo atender todos os tipos de negócios, desde ao micro empresario indidual ao negócio de grande porte.
+.
 
-"O reflexo de um bom atendimento é o carinho de um cliente satisfeito."
-Óticas Carol Vila Isabel
+    "O reflexo de um bom atendimento é o carinho de um cliente satisfeito."
+    Óticas Carol Vila Isabel
 
-Retirado desse site https://www.pensador.com/atendimento_ao_cliente/ em 24/09/2023.
+    Retirado desse site https://www.pensador.com/atendimento_ao_cliente/ em 24/09/2023.
 
